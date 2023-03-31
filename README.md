@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kosy
 - 👀 I’m interested in Technical & Domotica
 - 🌱 I’m prefere communicate in Dutch, but English is ok 2
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’d love to invent & check & connect all domotica.
 - 📫 kosyko@gmail.com
 
 <!---
