@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kosy
 - 👀 I’m interested in Technical & Domotica
-- 🌱 I’m currently learning ...
+- 🌱 I’m orefere connunicate in Dutch, but English is ok 2
 - 💞️ I’m looking to collaborate on ...
 - 📫 kosyko@gmail.com
 
